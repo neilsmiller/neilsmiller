@@ -1,4 +1,4 @@
-👋 Hi, I’m @neilsmiller. Currently work at the [General Services Administration](https://www.gsa.gov/), Office of Government-wide Policy.
+👋 Hi, I’m @neilsmiller. Most recently, I worked at the [General Services Administration](https://www.gsa.gov/), in the Office of Government-wide Policy.
 
 
 <!---
